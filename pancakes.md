@@ -8,8 +8,9 @@
 - 1 teaspoon salt
 - 1 tablespoon white sugar
 - 1 1/4 cups milk
-- 1 egg
+- 2 eggs
 - 3 tablespoons butter, melted
+The user can top up with sirrip or sugar when serving.
 
 ## Preparation
 
