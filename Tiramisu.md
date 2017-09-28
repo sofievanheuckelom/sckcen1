@@ -3,11 +3,11 @@
 ## Ingredients
 
 - 6 egg yolks
-- 3/4 cup white sugar
+- 85 gr white sugar
 - 2/3 cup milk
 - 1 1/4 cups heavy cream
 - 1/2 teaspoon vanilla extract
-- 1 pound mascarpone cheese
+- 500gmascarpone cheese
 - 1/4 cup strong brewed coffee, room temperature
 - 1 bottle of amaretto
 - 2 (3 ounce) packages ladyfinger cookies
