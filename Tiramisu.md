@@ -1,4 +1,4 @@
-# Tiramisu
+# Tiramisu v2
 
 ## Ingredients
 
@@ -11,7 +11,7 @@
 - 1/4 cup strong brewed coffee, room temperature
 - 1 bottle of amaretto
 - 2 (3 ounce) packages ladyfinger cookies
-- 1 tablespoon unsweetened cocoa powder 
+- 2 tablespoons unsweetened cocoa powder
 
 ## Preparation
 
